@@ -1,1 +1,1 @@
-# LALALA snsadsj
+Lebo som bol donútení. 
